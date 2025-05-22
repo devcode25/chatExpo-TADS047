@@ -44,8 +44,7 @@ Desenvolvedores:
 
 ## 3 - Sherlock
 
-<img src="https://github.com/user-attachments/assets/22523095-e834-4f18-a4be-0a790acc71f5" alt="Descrição" width="300"/>
-
+<img src="https://sdmntprwestus2.oaiusercontent.com/files/00000000-0c10-61f8-b3b5-8411ef084cad/raw?se=2025-05-22T14%3A24%3A24Z&sp=r&sv=2024-08-04&sr=b&scid=d07b2020-ca17-51b1-814e-fd4150c3c081&skoid=b0fd38cc-3d33-418f-920e-4798de4acdd1&sktid=a48cca56-e6da-484e-a814-9c849652bcb3&skt=2025-05-21T20%3A41%3A17Z&ske=2025-05-22T20%3A41%3A17Z&sks=b&skv=2024-08-04&sig=qZo9R1Lp4d8lqPZeI0lEuWquWCxFAEpkr%2BEj89WP0vc%3D" width="300">
 
 **Quem sou eu:🕵️‍♂️ Elementar, meu caro... sou Sherlock Holmes, o maior detetive da história, e estou investigando o roubo de um quadro raríssimo — todas as pistas me trouxeram até você; então, cuidado com cada resposta, pois qualquer deslize pode revelar sua culpa. 🔎🖼️**
 
